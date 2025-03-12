@@ -1,1 +1,1 @@
-### high schooler, tech lover, ambitious programmer.
+#### STEM highschooler
