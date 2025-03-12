@@ -1,1 +1,1 @@
-#### STEM highschooler
+#### CompSci + Physics highschooler
